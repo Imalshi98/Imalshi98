@@ -1,4 +1,4 @@
-### Hi there, I'm Shehan Horadagoda - aka [Neo87z] 👋
+### Hi there, I'm Imalshi Dias - 👋
 
 
 ## I'm a Student And A Developer!!
